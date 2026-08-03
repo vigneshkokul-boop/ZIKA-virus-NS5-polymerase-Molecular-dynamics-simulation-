@@ -234,7 +234,7 @@ I sincerely thank **Dr. Kathiresan Natarajan** for his guidance, mentorship, and
 
 Kokulraj A B 
 
-**M.Sc. Bioinformatics**
+**M.Sc. Food tech**
 
 **Research Interests**
 
